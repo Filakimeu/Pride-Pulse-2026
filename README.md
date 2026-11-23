@@ -1,1 +1,0 @@
-# Pride-Pulse-2026
